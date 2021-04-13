@@ -1,1 +1,2 @@
-﻿- [CONNOLLY STATION PUB](http://connollypub.com/)
+- [CONNOLLY STATION PUB](http://connollypub.com/)
+- [WE Cidreria](http://www.we-cidreria.ru/)
